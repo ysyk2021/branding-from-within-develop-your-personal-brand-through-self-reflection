@@ -14,4 +14,4 @@ Throughout the book, readers will find real-life examples and case studies of in
 
 By the end of this book, readers will have a comprehensive toolkit for developing and communicating a strong personal brand. Whether you're just starting out in your career or looking to take your personal brand to the next level, "Branding from Within: Develop Your Personal Brand Through Self-Reflection" is an invaluable resource for anyone looking to build a powerful and authentic personal brand.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
