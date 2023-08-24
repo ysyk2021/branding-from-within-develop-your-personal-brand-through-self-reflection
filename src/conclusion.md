@@ -1,5 +1,4 @@
 
-
 In this book, we've explored the importance of personal branding and how self-reflection can help develop a strong personal brand that truly represents who you are. We've covered a variety of techniques for building your personal brand from within, including identifying your core values, defining your unique strengths, and crafting your personal brand story.
 
 Recap of Personal Branding Techniques
