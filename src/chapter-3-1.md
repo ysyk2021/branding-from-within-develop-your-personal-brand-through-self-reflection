@@ -1,5 +1,3 @@
-Developing a Growth Mindset
-=====================================================================
 
 Developing a growth mindset is critical for building a strong personal brand. In this chapter, we will explore strategies for developing a growth mindset to support your personal branding efforts.
 

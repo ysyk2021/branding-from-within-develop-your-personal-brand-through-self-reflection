@@ -1,5 +1,3 @@
-Strategies for Building Self-Confidence
-=================================================================================
 
 Self-confidence is a critical component of developing a strong personal brand. In this chapter, we will explore strategies for building self-confidence to support your personal branding efforts.
 

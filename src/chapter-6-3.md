@@ -1,5 +1,3 @@
-Building Credibility Through Communication
-========================================================================================
 
 Communicating your personal brand effectively is critical for building credibility and achieving success. In this chapter, we will explore strategies for building credibility through communication.
 

@@ -1,5 +1,3 @@
-The History of Personal Branding
-=======================================================================
 
 The concept of personal branding is not a new one. In fact, it has been around for centuries, although it was not referred to as "personal branding" until the late 20th century. In this chapter, we will explore the history of personal branding and how it has evolved over time.
 
@@ -21,5 +19,4 @@ Conclusion
 ----------
 
 Personal branding has a long and rich history that has evolved over time. From ancient artisans marking their products to modern-day entrepreneurs promoting themselves online, personal branding has become an essential aspect of career development in the digital age. By understanding the history of personal branding and how it has evolved, you can develop a more nuanced and informed approach to building your personal brand.
-
 

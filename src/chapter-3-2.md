@@ -1,5 +1,3 @@
-Overcoming Limiting Beliefs About Personal Brand
-==========================================================================================
 
 Limiting beliefs can hold you back from developing a strong personal brand. In this chapter, we will explore strategies for overcoming limiting beliefs about personal branding.
 

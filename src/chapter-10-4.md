@@ -1,5 +1,3 @@
-The Impact of Personal Branding on Leadership Effectiveness
-========================================================================================================
 
 Personal branding is not just important for individuals looking to advance their careers - it also has a significant impact on leadership effectiveness. In this chapter, we will explore the ways in which personal branding can enhance leadership skills and contribute to overall success as a leader.
 

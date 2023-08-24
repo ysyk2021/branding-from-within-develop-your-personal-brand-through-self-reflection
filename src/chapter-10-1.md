@@ -1,5 +1,3 @@
-The Role of Personal Branding in Leadership
-========================================================================================
 
 Personal branding is not just important for individual career development; it is also critical for effective leadership. In this chapter, we will explore the role of personal branding in leadership and provide strategies for building a strong leadership brand.
 

@@ -1,5 +1,3 @@
-The Power of Positive Thinking
-========================================================================
 
 A positive mindset is critical for developing a strong personal brand. In this chapter, we will explore the power of positive thinking and how it can help you build a powerful personal brand.
 

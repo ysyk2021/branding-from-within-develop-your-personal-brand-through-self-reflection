@@ -1,5 +1,3 @@
-Sustaining Your Personal Brand Over the Long-Term
-============================================================================================
 
 Personal branding is not a one-time process, but rather an ongoing effort that requires consistent attention and effort. To sustain your personal brand over the long-term, you need to prioritize it in your life and make it an ongoing focus.
 

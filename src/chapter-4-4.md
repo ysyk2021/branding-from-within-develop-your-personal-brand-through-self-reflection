@@ -1,5 +1,3 @@
-Overcoming Imposter Syndrome
-========================================================================
 
 Imposter syndrome is a common experience for many individuals when identifying their personal brand. It involves feeling like a fraud or like one's accomplishments and abilities are not truly deserved. In this chapter, we will explore strategies for overcoming imposter syndrome and developing a strong and authentic personal brand.
 

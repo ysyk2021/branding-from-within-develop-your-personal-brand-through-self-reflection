@@ -1,5 +1,3 @@
-Building a Support System
-====================================================================
 
 Sustaining your personal brand over the long-term requires ongoing effort and attention. One key aspect of sustaining your personal brand is building a support system that can help you stay focused, motivated, and accountable.
 
